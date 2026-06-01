@@ -75,4 +75,4 @@ yayımlandığı anda geçerli olur ve "Son güncelleme" tarihi buna göre deği
 
 Bu gizlilik politikası veya verileriniz hakkında sorularınız için:
 
-**E-posta:** mfurkanuslu9@gmail.com
+**E-posta:** uslu.muhammedfurkan7@gmail.com
