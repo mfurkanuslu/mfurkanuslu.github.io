@@ -75,4 +75,4 @@ accordingly.
 
 For questions about this privacy policy or your data:
 
-**Email:** mfurkanuslu9@gmail.com
+**Email:** uslu.muhammedfurkan7@gmail.com
